@@ -1,0 +1,1 @@
+# fizik-10-pdf1-72dpi
